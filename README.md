@@ -30,7 +30,7 @@ You can reach out to me through the following social media platforms:
 - LinkedIn: [linkedin.com/in/your_username](https://www.linkedin.com/in/your_username)
 - Twitter: [twitter.com/your_username](https://twitter.com/your_username)
 
-Feel free to connect, follow, and engage with me. Looking forward to connecting with you all!
+Feel free to connect with me. Looking forward to connecting with you all!
 
 ---
 
